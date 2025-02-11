@@ -1,3 +1,3 @@
 # zdm8 - mupdf docs & thirdparty
 
-https://drive.proton.me/urls/9QHXHFBPBC#Hkfs2CeLlpWg
+https://drive.google.com/file/d/1sqV2uYCjVw4RVOAMDUkCneeZTZ8xhPSM/view?usp=sharing
